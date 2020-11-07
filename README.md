@@ -1,2 +1,0 @@
-# notes
-Public Intellectual Property
